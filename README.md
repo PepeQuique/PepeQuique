@@ -1,6 +1,6 @@
 Hello! I'm Jose Enrique Zaragoza, known for PepeQuique.
 
-I'm currently in my 3rd semester studying Business Digital Transformation Engineering at the Tecnológico de Monterrey.
+I'm currently in my 4rd semester studying Business Digital Transformation Engineering at the Tecnológico de Monterrey.
 
 My main interests lie in technological development within businesses, programming. I'm a nature enthusiast and a fan of all sports involving mountains and adventures!
 
